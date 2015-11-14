@@ -1,0 +1,2 @@
+resdgerjt# lucru
+lucru
